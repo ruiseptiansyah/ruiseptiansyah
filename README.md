@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a college student in Indonesia<br>I love to learn anything new<br>I'm currently focusing on web developer and app developer<br>Reach me via email: ruiseptiansyah1@gmail.com<br>
+Undergraduate CS Student<brlove to learn anything new<br>I'm currently focusing on web developer and app developer<br>Reach me via email: ruiseptiansyah1@gmail.com<br>
 
 
 ## 🌐 Socials:
